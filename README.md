@@ -1,5 +1,5 @@
 # 💫 About Me:
-#<h2> Hello,Welcome!!!👋</h2>  <br><br><h4>I’m a girl passionate about technology and innovation! 🚀 I'm 17 years old and always exploring new possibilities in this incredible world.  </h4><br><br>🔎 I'm constantly seeking new knowledge, eager to learn, and I love sharing my journey with you!   <br><br>✨ Here, you can follow my progress from the very beginning to wherever I may go in the future.  <br><br>📬 Feel free to connect with me! It will be a pleasure to exchange experiences.  <br><br>---<br>⭐ Let's grow together?  
+<h2> Hello,Welcome!!!👋</h2>  <br><br><h4>I’m a girl passionate about technology and innovation! 🚀 I'm 17 years old and always exploring new possibilities in this incredible world.  </h4><br><br>🔎 I'm constantly seeking new knowledge, eager to learn, and I love sharing my journey with you!   <br><br>✨ Here, you can follow my progress from the very beginning to wherever I may go in the future.  <br><br>📬 Feel free to connect with me! It will be a pleasure to exchange experiences.  <br><br>---<br>⭐ Let's grow together?  
 
 
 ## 🌐 Socials:
