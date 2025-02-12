@@ -1,5 +1,5 @@
 # 💫 About Me:
-# Olá, seja bem-vindo(a)! 👋  <br><br>Sou uma garota apaixonada por tecnologia e inovação! 🚀 Tenho 17 anos e estou sempre explorando novas possibilidades nesse universo incrível.  <br><br>🔎 Sempre em busca de novos aprendizados, tenho sede de conhecimento e adoro compartilhar minha jornada com vocês!  <br><br>✨ Aqui, você poderá acompanhar minha evolução desde os primeiros passos até onde um dia estarei.  <br><br>📬 Sinta-se à vontade para se conectar comigo! Será um prazer trocar experiências.  <br><br>---<br>⭐ Vamos crescer juntos? 
+# Hello,Welcome!!!👋  <br><br>I’m a girl passionate about technology and innovation! 🚀 I'm 17 years old and always exploring new possibilities in this incredible world.  <br><br>🔎 I'm constantly seeking new knowledge, eager to learn, and I love sharing my journey with you!   <br><br>✨ Here, you can follow my progress from the very beginning to wherever I may go in the future.  <br><br>📬 Feel free to connect with me! It will be a pleasure to exchange experiences.  <br><br>---<br>⭐ Let's grow together?  
 
 
 ## 🌐 Socials:
